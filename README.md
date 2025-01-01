@@ -1,1 +1,1 @@
-# Miko-aj_Kalski_NPIT
+# Mikolaj_Kalski_NPIT
